@@ -1,0 +1,2 @@
+# vnzscnew
+script by @VnzVPN
